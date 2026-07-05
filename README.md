@@ -4,7 +4,6 @@ Bolsas e Cestos de Crochê
 Bem-vindo(a) ao meu espaço de crochê moderno! Aqui você encontra peças exclusivas, feitas 100% à mão, com fio de malha e materiais de alta qualidade. Unimos design contemporâneo, afeto e utilidade para transformar ambientes e complementar o seu estilo.
 
 ---
-
 ## 👜 Nossos Produtos
 
 ### 🛍️ Bolsas de Crochê
