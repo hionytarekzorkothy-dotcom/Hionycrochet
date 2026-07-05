@@ -10,5 +10,4 @@ Aqui, são fornecidos links para o Instagram e o portfólio da pessoa, onde prov
 ### 📬 Contato
 Esta parte oferece um meio de comunicação, especificamente um endereço de e-mail, para que os interessados possam entrar em contato diretamente com a pessoa responsável pelo projeto. Isso é útil para quem deseja fazer perguntas, solicitar informações adicionais ou discutir possíveis colaborações.
 
-Em resumo, o texto apresenta um projeto de crochê, destacando onde encontrar os trabalhos realizados e como entrar em contato com o criador.
-.
+Em resumo, o texto apresenta um projeto de crochê, destacando onde encontrar os trabalhos realizados e como entrar em contato com o criador
