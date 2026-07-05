@@ -1,4 +1,5 @@
-# 🧶 Hionycrochet - Bolsas e Cestos de Crochê
+# 🧶 Hionycrochet -Feito a mão ,com amor a cada ponto .
+Bolsas e Cestos de Crochê
 
 Bem-vindo(a) ao meu espaço de crochê moderno! Aqui você encontra peças exclusivas, feitas 100% à mão, com fio de malha e materiais de alta qualidade. Unimos design contemporâneo, afeto e utilidade para transformar ambientes e complementar o seu estilo.
 
@@ -31,12 +32,11 @@ Gostou de um modelo mas quer em outra cor ou tamanho? Nós fazemos!
 
 Para consultar preços, pronta-entrega ou fazer um pedido personalizado, entre em contato diretamente pelos canais abaixo:
 
-*   **📱 WhatsApp:** [(+961)81080981](https://wa.me) _(Substitua pelo seu link real)_
+*   **📱 WhatsApp:** [(+961)81080981](https://wa.me) 
 *   **📸 Instagram:** [@SeuUsuario](https://instagram.com)
-*   **📧 E-mail:** seu-email@email.com
+*   **📧 E-mail:** seu-hionycrochet@gmail.com
 
 ---
 
 ### 📦 Envios e Pagamento
-*   **Formas de Envio:** Enviamos para todo o Brasil via Correios/Transportadora (frete a consultar).
-*   **Pagamento:** Pix, Cartão de Crédito
+*   **Formas de Envio:** Enviamos para todo o libano / abdjan-costa do marfim 
